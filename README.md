@@ -1,1 +1,0 @@
-# abdugusaupolymafaraalumni.gitub.io
